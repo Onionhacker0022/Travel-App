@@ -13,8 +13,8 @@ To go from one place to another, as by car, train, plane, or ship; take a trip; 
 -------------------------------------------------------
 
 [Follow Twitter](https://twitter.com/pabitraswain760)
-[Follow Facebook](https://www.facebook.com/pabitra.swain.9028194)
-[Follow Reddit](https://www.reddit.com/user/pAbitrA_swAin154)
+[Facebook](https://www.facebook.com/pabitra.swain.9028194)
+[Reddit](https://www.reddit.com/user/pAbitrA_swAin154)
 
 :house:&nbsp; [Onionhacker0022.github.io](https://github.com/Onionhacker0022)
 
