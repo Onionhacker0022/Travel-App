@@ -11,8 +11,8 @@ To go from one place to another, as by car, train, plane, or ship; take a trip; 
 ](https://github.com/Onionhacker0022/Travel-App)
 
 -------------------------------------------------------
-
-[Follow Twitter](https://twitter.com/pabitraswain760)
+# Follow
+[Twitter](https://twitter.com/pabitraswain760)
 [Facebook](https://www.facebook.com/pabitra.swain.9028194)
 [Reddit](https://www.reddit.com/user/pAbitrA_swAin154)
 
